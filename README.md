@@ -5,4 +5,4 @@ I also create custom sounds for different apps, contact me @ siaguitar@gmail.com
 
 Enjoy!
 
-Sound Collection for iOS/Android UI http://siaguitar.com/soundui
+Sound Collection for iOS/Android UI http://www.soundui.com
